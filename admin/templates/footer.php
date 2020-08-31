@@ -1,0 +1,1 @@
+&copy; 2019 Skripsi Teknik Informatika | UIN Sunan Gunung Djati Bandung
